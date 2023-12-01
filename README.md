@@ -1,4 +1,4 @@
-# [dakusuta777.ml](https://dakusuta777.ml)
+# [dakusuta777.github.io](https://dakusuta777.github.io)
 
 DakuSuta777 (Giovanni D'onofrio) website
 
